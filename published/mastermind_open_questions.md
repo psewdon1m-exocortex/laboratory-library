@@ -1,3 +1,4 @@
+https://exocortex-saturn.shmoza.net/s/6iX89wVueI1aL3DEj4_x_7nKTO0luR5OMJ4995CZgW4
 # Mastermind — открытые вопросы и решения для обсуждения
 
 **Статус:** все перечисленные вопросы открыты; варианты не утверждены.  
